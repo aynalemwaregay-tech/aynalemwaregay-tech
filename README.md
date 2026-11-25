@@ -97,7 +97,7 @@ GitHub: https://github.com/aynalemwaregay-tech
 
 Professional Website: https://sites.google.com/view/aynalem-woldargay-professional/home
 
-ORCID: https://orcid.org/0000-0003-3812-2911
+https://orcid.org/0009-0001-1154-4746
 
 
 **WORK OPPORTUNITIES**
